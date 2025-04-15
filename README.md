@@ -39,7 +39,7 @@ You can explore the live version of this project here:
 ## 📢 **Let’s Connect!**
 If you enjoy this project or have any suggestions, feel free to connect with me:
 - 📣 Telegram: [@dhyeygotyou](https://t.me/dhyeygotyou)
-- 📸 Instagram: [@dhyeyyyyyyyy](https://www.instagram.com/dhyeyyyyyyyy)
+- 📸 Instagram: [@dhyeyyyyyyyy](https://www.instagram.com/dhyeyp29)
 - 💼 LinkedIn: [Dhyey Patel](https://www.linkedin.com/in/dhyeypatel29)
 - 💻 GitHub: [dhyeyyyyyyyy](https://github.com/dhyeyyyyyyyy)
 
